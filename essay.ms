@@ -4,12 +4,11 @@ Application Essay
 Phineas Greene
 
 .PP
-One talent that I have always had is a passion to learn about the things that interest me.
-If anything catches my eye and intrigues me, I learn as much about it as I can.
-The one of the first major examples of this in my life was fish-keeping.
 When I was 7 years old, I became interested in aquariums, and I immediately began researching the topic by checking out from the local library as many books on the subject as possible.
 Soon I was an expert on water chemistry, nitrogen cycle biology, and ichthyology.
 By the time of writing this essay, I have maintained seven aquariums, and kept countless species of fish.
+One talent that I have always had is a passion to learn about the things that interest me.
+If anything catches my eye and intrigues me, I learn as much about it as I can.
 .PP
 This desire to delve deep into a topic didn't stop at fish tanks. It soon spread to keeping other animals.
 Again, I learned as much as I could on the topic, and even volunteered at the Dallas Zoo and Fair Park Aquarium for 4 years.
